@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Chamae
+# Hi there 👋, I'm Chaimaa
 
 ![Profile Banner](https://your-image-link.com/banner.png)
 
